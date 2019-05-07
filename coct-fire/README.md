@@ -9,7 +9,7 @@ Received a call from Fiona that Ludwig from COCT Fire and rescue was coming to p
 Responded to Ludwig noting the issues he had picked up. I had already addressed 2 issues that afternoon, 2 were already being addressed. I communicated when I would be able to address the rest.
 
 * [Email](attachments/2017-09-14-response-coct-fire-and-resucue.pdf)
-* [Door Barrier Issue](attachements/2017-09-13-fire-department-recommendations-door-barrier.pdf)
+* [Door Barrier Issue](attachments/2017-09-13-fire-department-recommendations-door-barrier.pdf)
 * [Loose Wiring Issue](attachments/2017-09-13-fire-department-recommendations-loose-wiring.pdf)
 * [Work in progress - Carport lights](attachments/2017-09-13-fire-department-recommendations-lights-in-carport.pdf)
 * [Work in progress - Carport pedestrian gate](attachments/2017-09-13-fire-department-recommendations-pedestrian-gate.pdf)
