@@ -34,7 +34,7 @@ Did inspection of the building to confirm the signage and extingishers had been 
 
 * [Issue](attachments/2017-09-13-fire-department-signage-in-light-wells.pdf)
 
-## 2017-09-30 08:53
+## 2017-09-30 08:53 Follow up mail to COCT fire and rescue
 
 Sent follow up email to Ludwig with remaining issues that had been addressed
 
@@ -46,7 +46,7 @@ Sent follow up email to Ludwig with remaining issues that had been addressed
 
 Just some background as to what issues Ludwig had raised to the trustees and had been addressed.
 
-[Email](attachments/2018-02-02-mail-to-ignatius-giving-context-as-to-what-had-been-addressed.pdf)
+* [Email](attachments/2018-02-02-mail-to-ignatius-giving-context-as-to-what-had-been-addressed.pdf)
 
 ## 2018-02-05 Meeting with Ignatius and Jerad from COCT fire and rescue
 
@@ -57,26 +57,28 @@ Met with Ignatius and Jerad. See mail below with what was reported back to the t
 
 Sent additional mail with the council plans I had as they had asked for building plans.
 
-[Email](attachments/2018-02-05-coct-requested-building-plans.pdf)
+* [Email](attachments/2018-02-05-coct-requested-building-plans.pdf)
 
 ## 2018-02-06 Moved pot plant impeding flow of movement
 
 Emptied large pot plant and took down to braai area as instructed by COCT fire and rescue
 
-[Issue](attachements/2018-02-06-remove-pot-plant.pdf) 
+* [Issue](attachements/2018-02-06-remove-pot-plant.pdf) 
 
 ## 2018-02-21 to 2018-02-22
 
 Richard sent another email to a different COCT official with numerous specious allegations that were false
 
-[Email](attachements/2018-02-21-to-2018-02-22-richard-sending-a-new-mail-to-coct.pdf)
+* [Email](attachements/2018-02-21-to-2018-02-22-richard-sending-a-new-mail-to-coct.pdf)
 
 ## 2018-03-02 Report from COCT fire 
 
 Received report from Ignatius. Following day Richard complained about never receiving documentation from the trustees. Following day I forwarded the report.\
 
-[Email](attachements/2018-03-02-report-from-coct-fire-and-rescue.pdf)
+* [Email](attachements/2018-03-02-report-from-coct-fire-and-rescue.pdf)
 
 ## 2018-03-19 13:00 to 14:00
 
 Met with Ignatius and Jerad to further discuss the report.
+
+* [Calendar entry](attachments/2018-03-19-meeting-with-coct-fire-and-rescue.png)
