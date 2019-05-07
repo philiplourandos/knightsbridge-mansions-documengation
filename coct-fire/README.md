@@ -52,8 +52,8 @@ Just some background as to what issues Ludwig had raised to the trustees and had
 
 Met with Ignatius and Jerad. See mail below with what was reported back to the trustees. Addressed one issue out of the 2 they pointed out.
 
-[Email to trustees](attachements/2018-02-05-email-to-trustees-describing-meeting-with-coct-fire.pdf)
-[Issue - Barrel latches](attachments/2018-02-05-removal-of-barrel-latches-from-fire-exit-doors-on-marias-road-side.pdf)
+* [Email to trustees](attachements/2018-02-05-email-to-trustees-describing-meeting-with-coct-fire.pdf)
+* [Issue - Barrel latches](attachments/2018-02-05-removal-of-barrel-latches-from-fire-exit-doors-on-marias-road-side.pdf)
 
 Sent additional mail with the council plans I had as they had asked for building plans.
 
