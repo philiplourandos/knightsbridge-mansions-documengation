@@ -1,4 +1,4 @@
-# COCT Fire and Rescue correspondance
+# COCT Fire and Rescue correspondence
 
 ## 2017-09-13 9am
 
