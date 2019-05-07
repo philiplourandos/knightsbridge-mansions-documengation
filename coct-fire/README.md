@@ -52,7 +52,7 @@ Just some background as to what issues Ludwig had raised to the trustees and had
 
 Met with Ignatius and Jerad. See mail below with what was reported back to the trustees. Addressed one issue out of the 2 they pointed out.
 
-* [Email to trustees](attachements/2018-02-05-email-to-trustees-describing-meeting-with-coct-fire.pdf)
+* [Email to trustees](attachments/2018-02-05-email-to-trustees-describing-meeting-with-coct-fire.pdf)
 * [Issue - Barrel latches](attachments/2018-02-05-removal-of-barrel-latches-from-fire-exit-doors-on-marias-road-side.pdf)
 
 Sent additional mail with the council plans I had as they had asked for building plans.
@@ -63,19 +63,19 @@ Sent additional mail with the council plans I had as they had asked for building
 
 Emptied large pot plant and took down to braai area as instructed by COCT fire and rescue
 
-* [Issue](attachements/2018-02-06-remove-pot-plant.pdf) 
+* [Issue](attachments/2018-02-06-remove-pot-plant.pdf) 
 
 ## 2018-02-21 to 2018-02-22
 
 Richard sent another email to a different COCT official with numerous specious allegations that were false
 
-* [Email](attachements/2018-02-21-to-2018-02-22-richard-sending-a-new-mail-to-coct.pdf)
+* [Email](attachments/2018-02-21-to-2018-02-22-richard-sending-a-new-mail-to-coct.pdf)
 
 ## 2018-03-02 Report from COCT fire 
 
 Received report from Ignatius. Following day Richard complained about never receiving documentation from the trustees. Following day I forwarded the report.\
 
-* [Email](attachements/2018-03-02-report-from-coct-fire-and-rescue.pdf)
+* [Email](attachments/2018-03-02-report-from-coct-fire-and-rescue.pdf)
 
 ## 2018-03-19 13:00 to 14:00
 
